@@ -1,6 +1,6 @@
 Gabi Novak - Prvi Snijeg
 ================================================
-https://www.youtube.com/watch?v=obeYuNj9Qdc
+[https://www.youtube.com/watch?v=obeYuNj9Qdc]
 tekst zapisala: Antonela Madunic
 ================================================
 Prvi snijeg
